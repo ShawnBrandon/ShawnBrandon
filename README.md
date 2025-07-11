@@ -68,7 +68,7 @@
 
 ⭐ ¡Gracias por visitar mi perfil!
 
-💼 [LinkedIn](https://linkedin.com/in/shawnbrandon) *(opcional)*
+
 
 ---
 
